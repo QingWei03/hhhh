@@ -1,1 +1,10 @@
-https://colab.research.google.com/drive/1AQjDTjoODj_1G_FAV3W3oiSaB1GUwvvd#scrollTo=_bTf57qIufds7
+![Ảnh chụp màn hình (8)](https://github.com/QingWei03/hhhh/assets/162247169/c7e86b19-bc01-4073-998b-df7c00837093)
+![Ảnh chụp màn hình (9)](https://github.com/QingWei03/hhhh/assets/162247169/47515edf-8eb6-4ee6-b89c-03c01f8aede5)
+![Ảnh chụp màn hình (10)](https://github.com/QingWei03/hhhh/assets/162247169/0268f796-23c5-4906-9f5c-83d396ac6540)
+![Ảnh chụp màn hình (11)](https://github.com/QingWei03/hhhh/assets/162247169/7f8a69e0-3871-44c8-ad32-6c8ce1f24904)
+![Ảnh chụp màn hình (12)](https://github.com/QingWei03/hhhh/assets/162247169/db6692e4-c761-4eb3-ae84-dd9d833234ce)
+![Ảnh chụp màn hình (13)](https://github.com/QingWei03/hhhh/assets/162247169/5d39308e-a013-4c62-806f-4c1a8322cebf)
+![Ảnh chụp màn hình (14)](https://github.com/QingWei03/hhhh/assets/162247169/5cf7394b-9a82-431f-8fb1-be7b022b0eee)
+![Ảnh chụp màn hình (15)](https://github.com/QingWei03/hhhh/assets/162247169/32aef3af-7bb2-4733-8811-f5ed6d67ec39)
+![Ảnh chụp màn hình (16)](https://github.com/QingWei03/hhhh/assets/162247169/93d70ce5-4b59-4db7-8597-f3ae9580137c)
+![Ảnh chụp màn hình (17)](https://github.com/QingWei03/hhhh/assets/162247169/9bf5391e-ce11-4395-9b43-a5f99f82ef7f)
